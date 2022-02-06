@@ -1,2 +1,0 @@
-# nicoananda
-im a beginner
